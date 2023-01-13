@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Madara
+- 👀 I’m interested in Naruto
+- 🌱 I’m currently learning Rasengan
+- 💞️ I’m looking to collaborate on Sasuke
+- 📫 How to reach me? No, I'm dangerous
